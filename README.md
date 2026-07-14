@@ -7,6 +7,8 @@ Mbti: INFJ
 Birthday: 12/17
 Nationality: Russia
 
+I have dementia, pls remind me who you are if i forget you🥲
+
 
 Interest: A silent voice,jjk,omori,lain,monster,the liar princess and the blind prince,genshin,hsr,wuwa,and more
 
