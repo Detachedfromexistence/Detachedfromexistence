@@ -4,7 +4,7 @@
 About me:
 Sexuality: Aroace,acexual
 Mbti: INFJ
-birthday 12/17
+birthday: 12/17
 Nationality: Russia
 
 
