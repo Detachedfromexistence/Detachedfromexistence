@@ -6,6 +6,7 @@ Sexuality: Aroace,asexual
 Mbti: INFJ
 Birthday: 12/17,18 years old
 Nationality: Russia
+Pronouns: He/him
 
 I have dementia, pls remind me who you are if i forget you🥲
 
