@@ -2,7 +2,7 @@
 
 # - Hi, my name's heis not highs
 About me:
-Sexuality: Aroace,acexual
+Sexuality: Aroace,asexual
 Mbti: INFJ
 Birthday: 12/17
 Nationality: Russia
