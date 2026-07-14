@@ -4,7 +4,7 @@
 About me:
 Sexuality: Aroace,asexual
 Mbti: INFJ
-Birthday: 12/17
+Birthday: 12/17,18 years old
 Nationality: Russia
 
 I have dementia, pls remind me who you are if i forget you🥲
