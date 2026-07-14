@@ -1,5 +1,13 @@
-## Hi there 👋
+<img width="468" height="244" alt="Image" src="https://github.com/user-attachments/assets/b34ac8f7-bcac-467e-86e8-23c04caafbba" />
 
+# - Hi, my name's heis not highs
+
+<img width="512" height="288" alt="Image" src="https://github.com/user-attachments/assets/9c1e34a6-d2c7-4153-b6b1-dbf23b64d3af" />
+
+˚⋆𖦹.ᡣ𐭩˚. °.✩♬ ₊˚.⋆☾⋆⁺₊✧☪︎ ִ ࣪𖤐 . ༘˚⋆𐙚｡⋆𖦹.✧˚. ˚˖𓍢ִ໋✧˚♡❀˖⁺. ༶ ⋆˙⊹❀♡. ︶꒦꒷♡꒷꒦︶. °˖✧˚ʚ♡ɞ˚✧˖°. ₊˚ ִ 𐙚:₊✩‧₊˚౨ৎ˚₊ ˚⋆｡☁︎ ｡˚☽˚♡‧⋆☾⋆⁺₊ favs
+
+ <img width="540" height="304" alt="Image" src="https://github.com/user-attachments/assets/8670416f-7215-460d-808d-941b068c1d19" />
+<img width="498" height="281" alt="Image" src="https://github.com/user-attachments/assets/11d36c09-db7e-41a2-a812-575bf913cf21" />
 <!--
 **Detachedfromexistence/Detachedfromexistence** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
