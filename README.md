@@ -18,6 +18,7 @@ Dislike: Hypocritical ppl,freaky ppl,toxic ppl,ppl who persist in falsehood,argu
 
 
 Like: Sleeping,cats,music,horror,gory, and i forgot ;-;
+
 <img width="918" height="904" alt="IMG_1349" src="https://github.com/user-attachments/assets/9a306490-c527-44c4-95a1-e46a06a0b05a" />
 <img width="512" height="288" alt="Image" src="https://github.com/user-attachments/assets/9c1e34a6-d2c7-4153-b6b1-dbf23b64d3af" />
 
