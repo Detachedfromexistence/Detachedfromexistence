@@ -14,7 +14,7 @@ I have dementia, pls remind me who you are if i forget you🥲
 Interest: A silent voice,jjk,omori,lain,monster,the liar princess and the blind prince,genshin,hsr,wuwa,and more
 
 
-Dislike: Hypocritical ppl,freaky ppl,toxic ppl,ppl who persist in falsehood,arguiments,drama,phonecalls,yaoi(i dont hate yaoi lovers tho :b)
+Dislike: Hypocritical ppl,freaky ppl,toxic ppl,ppl who persist in falsehood,arguiments,drama,phonecalls,yaoi(i dont hate yaoi lovers tho :b and i dont mind matching with gayships heh)
 
 
 Like: Sleeping,cats,music,horror,gory, and i forgot ;-;
