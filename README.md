@@ -2,7 +2,7 @@
 
 # - Hi, my name's heis not highs
 # ︶꒦꒷🇷🇺 He/him Aroace Asexual INFJ꒷꒦︶
-im bad at communicating
+Im bad at communicating
 
 <img width="512" height="288" alt="Image" src="https://github.com/user-attachments/assets/9c1e34a6-d2c7-4153-b6b1-dbf23b64d3af" />
 
