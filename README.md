@@ -5,6 +5,8 @@
  
 . i may be akward first or weird, sorry.
 
+. i not a talkative person.
+
 . im mostly offtab all the time, w2i.
 
 ‎. i like cute lil intreactions:> tho, please be mindfull dont do very freaky stuff.
