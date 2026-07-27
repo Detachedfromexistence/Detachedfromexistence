@@ -1,7 +1,7 @@
 <img width="468" height="244" alt="Image" src="https://github.com/user-attachments/assets/b34ac8f7-bcac-467e-86e8-23c04caafbba" />
 
  # Hi, my name's heis not highs
- ︶꒦꒷🇷🇺 18, He/him, Aroace, Asexual, INFJ-EII 4w5 sp/so 459꒷꒦︶
+ ︶꒦꒷🇷🇺 18, He/him, Aroace, Asexual, INFJ꒷꒦︶
  
 . i may be akward first or weird, sorry.
 
