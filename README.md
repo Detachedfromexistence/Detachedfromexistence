@@ -11,7 +11,7 @@
 
 ‎. I like cute lil intreactions tho please be mindfull dont do very freaky stuff.
 
-MBTI: INFJ
+MBTI: INFJ NI FE TI SE
  
  Socionics: EII
  
