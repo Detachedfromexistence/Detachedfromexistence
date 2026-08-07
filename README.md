@@ -1,7 +1,21 @@
 <img width="468" height="244" alt="Image" src="https://github.com/user-attachments/assets/b34ac8f7-bcac-467e-86e8-23c04caafbba" />
 
  # Hi, my name's heis :b
- ︶꒦꒷18, He/him, Aroace, Asexual, INFJ꒷꒦︶
+ ︶꒦꒷18, He/him, Aroace, Asexual꒷꒦︶
+
+ MBTI: INFJ
+ 
+ Socionics: EII
+ 
+ Enneagram Core & Subtype: Social 4 (so4)
+ 
+ Wing: 4w5
+ 
+ Tritype: 469 
+ 
+ Psychosophy (AP): ELVF
+ 
+ (Im a typology fan👍)
  
 . I may be akward first or weird, sorry.
 
