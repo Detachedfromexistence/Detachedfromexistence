@@ -11,7 +11,9 @@
 
 ‎. I like cute lil intreactions tho please be mindfull dont do very freaky stuff.
 
-MBTI: INFJ NI FE TI SE
+MBTI: INFJ
+
+ Cognitive functions: Ni Fe Ti Se
  
  Socionics: EII
  
