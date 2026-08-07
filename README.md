@@ -9,6 +9,6 @@
 
 . Im mostly offtab all the time, w2i.
 
-‎. Im like cute lil intreactions tho please be mindfull dont do very freaky stuff.
+‎. I like cute lil intreactions tho please be mindfull dont do very freaky stuff.
 
 <img width="512" height="288" alt="Image" src="https://github.com/user-attachments/assets/9c1e34a6-d2c7-4153-b6b1-dbf23b64d3af" />
