@@ -2,8 +2,16 @@
 
  # Hi, my name's heis :b
  ︶꒦꒷18, He/him, Aroace, Asexual꒷꒦︶
+ 
+. I may be akward first or weird, sorry.
 
- MBTI: INFJ
+. Im not a talkative person.
+
+. Im mostly offtab all the time, w2i.
+
+‎. I like cute lil intreactions tho please be mindfull dont do very freaky stuff.
+
+MBTI: INFJ
  
  Socionics: EII
  
@@ -16,13 +24,5 @@
  Psychosophy (AP): ELVF
  
  (Im a typology fan👍)
- 
-. I may be akward first or weird, sorry.
-
-. Im not a talkative person.
-
-. Im mostly offtab all the time, w2i.
-
-‎. I like cute lil intreactions tho please be mindfull dont do very freaky stuff.
 
 <img width="512" height="288" alt="Image" src="https://github.com/user-attachments/assets/9c1e34a6-d2c7-4153-b6b1-dbf23b64d3af" />
