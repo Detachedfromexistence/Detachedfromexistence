@@ -5,8 +5,3 @@
 rᥱsᥱr᥎ᥱძ
 
 <img width="512" height="288" alt="Image" src="https://github.com/user-attachments/assets/9c1e34a6-d2c7-4153-b6b1-dbf23b64d3af" />
-
-<img width="498" height="235" alt="B180EDD4-D855-49DF-AECF-F2227CA1D714" src="https://github.com/user-attachments/assets/17071a1f-0ea9-433b-867e-0b7a692916b0" />
-
-Oc 
-<img width="4181" height="4973" alt="Untitled19_20261004125622" src="https://github.com/user-attachments/assets/49598dcd-6e29-47f3-a06f-b9442625b535" />
