@@ -5,3 +5,4 @@
 rᥱsᥱr᥎ᥱძ
 
 <img width="512" height="288" alt="Image" src="https://github.com/user-attachments/assets/9c1e34a6-d2c7-4153-b6b1-dbf23b64d3af" />
+<img width="3240" height="3138" alt="Untitled51_20261112152045" src="https://github.com/user-attachments/assets/f8fd57aa-19ca-4a82-8247-3c00862fad92" />
